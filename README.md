@@ -6,7 +6,7 @@
 
 ani <sup>*or*</sup> fanta  
 *@qnakin is main gh*  
-**kuki city <sup>*+*</sup> tony  <sup> *+* </sup> marty** <3
+ㅤㅤㅤㅤㅤㅤㅤㅤ**kuki city <sup>*+*</sup> tony  <sup> *+* </sup> marty** <3
 
 
 
