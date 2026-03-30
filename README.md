@@ -15,9 +15,3 @@ ani <sup>*or*</sup> fanta
   
 *anakin hvykin*  
 **doubles dni**
-
-
-
-
-
-<p align="center"><img width="240" src="https://i.pinimg.com/1200x/13/b1/c8/13b1c83207b1b43a45d2a36fbd8c69bb.jpg" alt="100">
