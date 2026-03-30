@@ -7,8 +7,12 @@
 
 ani <sup>*or*</sup> fanta  
 *@qnakin is main gh*  
-**kuki city <sup>*+*</sup> tony  <sup>*+*</sup> marty** <3
+**kuki city <sup>*+*</sup> tony  <sup> *+* </sup> marty** <3
 
 
 
 <img align="right" width="100" height="100" src="https://i.pinimg.com/736x/12/6d/df/126ddf5e82036fe2a78e65fe5348653a.jpg">
+<div align="right">#1 starwars enthuiast  
+  
+*anakin hvykin*  
+**doubles dni**
